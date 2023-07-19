@@ -10,7 +10,6 @@
 
 - 📫 How to reach me **madhushankagamage9@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1gz3L26LwHGeq0SxTzTh9osvTczEasffm?usp=sharing](https://drive.google.com/drive/folders/1gz3L26LwHGeq0SxTzTh9osvTczEasffm?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
