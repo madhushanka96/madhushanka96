@@ -1,3 +1,4 @@
+![MasterHead](https://github.com/madhushanka96/madhushanka96/blob/main/LinkedIn%20Cover%20Banner.png)
 <h1 align="center">Hi 👋, I'm Madhushanka Gamage</h1>
 <h3 align="center"> A passionate Database & Middleware Administrator</h3>
 
